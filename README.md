@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with **Documentation, Google, stuck overflow, Forum, Expert person.**
 
-- 📫 How to reach me **trikhaqiqi@kudangkoding.com**
+- 📫 How to reach me **halo@kudangkoding.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
